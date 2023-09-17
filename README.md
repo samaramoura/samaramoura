@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @samaramoura
+- 👋 Hi, I’m Samara da Silva Moura
 - 👀 I’m interested in study
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on all
